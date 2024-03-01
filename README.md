@@ -1,4 +1,5 @@
-### Hi there 👋
+### Hi there 👋 
+bem vindo a minha conta
 
 <!--
 **IsaFicinski/IsaFicinski** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
@@ -14,3 +15,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+https://media.giphy.com/media/nHzr9AhNGdJBSOjzPP/giphy.gif?cid=82a1493bi58z7j0sdpn48av9qi6dvrffnfirmtuod2idp4x5&ep=v1_gifs_trending&rid=giphy.gif&ct=g
+https://media.giphy.com/media/LhSjUjsxNI9b7YH5RL/giphy.gif?cid=82a1493b22ezhsybz800w53xayim4m8p3l6m83dsddmb3bwz&ep=v1_gifs_trending&rid=giphy.gif&ct=g
+https://media.giphy.com/media/3ndAvMC5LFPNMCzq7m/giphy.gif?cid=82a1493bvu0bu1yjv840iwn0uwmg7rdq0n7sgcx10uxgo0ud&ep=v1_gifs_trending&rid=giphy.gif&ct=g
+https://media.giphy.com/media/LhSjUjsxNI9b7YH5RL/giphy.gif?cid=82a1493b22ezhsybz800w53xayim4m8p3l6m83dsddmb3bwz&ep=v1_gifs_trending&rid=giphy.gif&ct=g
+https://media.giphy.com/media/n9v0Vus5M9uLe/giphy.gif?cid=82a1493bkhb5r1r5497aycn221tvfbutba5v3l857uvmdwnd&ep=v1_gifs_trending&rid=giphy.gif&ct=g
+https://media.giphy.com/media/bbshzgyFQDqPHXBo4c/giphy.gif?cid=790b7611te27z7k5212ibj9yisdye4nah22a5vt1tpzlwkc2&ep=v1_gifs_trending&rid=giphy.gif&ct=g
